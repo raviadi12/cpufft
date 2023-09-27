@@ -1,0 +1,1 @@
+Software ini buatan FM-RAVI, selain Nadhifa, dilarang menggunakan software ini
